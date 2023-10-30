@@ -1,7 +1,7 @@
 # Vape-V4.10-Crack (FIXED)
 I got it working but I don't think for much time so get it as fast as you can
 
-I'm not responsible of what you do whit it or if you get banned it's not my fault
+# I'm not responsible of what you do whit it or if you get banned it's not my fault
   
 Tutorial on how to use it and Please read it:
 
